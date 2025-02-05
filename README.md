@@ -1,1 +1,1 @@
-Purchase V5 on https://store.kyrosfivem.com/
+Purchase V6 on https://store.kyrosfivem.com/
