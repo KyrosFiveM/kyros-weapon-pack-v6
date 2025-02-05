@@ -1,1 +1,1 @@
-# kyros-weapon-pack-v6
+Purchase V5 on https://store.kyrosfivem.com/
